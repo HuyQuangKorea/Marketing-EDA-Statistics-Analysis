@@ -3,7 +3,7 @@ Unveiled marketing campaign performance through comprehensive analysis. Cleaned 
 
 **To better understand the project, please look at the file that I have analyzed and explained very carefully.**
 
- ![image](https://github.com/HuyQuangOP/QuangHuyDao.Portfolio/blob/main/image/mobile-marketing-analytics-tools.webp)
+ ![image](https://clevertap.com/wp-content/uploads/2022/01/marketing-analytics.png)
 
 
 
